@@ -5,5 +5,4 @@ Regent.  He is surely honorable and will lead a long and prosperous life.
 
 Ned Stark retired from politics and opened a donut shop
 
-
-adding gibberish!!!
+In this ending for the master branch, Ned did not poison the donuts and he lived for 1000 years. The donut shop did however close due to poor demand and insufficient supply of frosting. 
