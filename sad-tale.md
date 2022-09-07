@@ -6,4 +6,4 @@ Regent.  He is surely honorable and will lead a long and prosperous life.
 Ned Stark retired from politics and opened a donut shop
 
 
-Ned's Donut shop was an incredible success. The people loved donuts so much that they stopped cutting body parts off of other people and lived in relative peace and donut harmony for 1000 years
+Later, the crowds revolted after the donuts were poisoned and Ned was later decapitated. It was a sad ending for Ned, but the donut shop was later re-opened and there were no more poisoned donuts. The recipe was changed and the donut shop eventually became Dunkin Donuts. 
